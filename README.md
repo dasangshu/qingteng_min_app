@@ -18,8 +18,6 @@
 微官网与CRM打通，流量获取-跟进环节无阻碍
 
 
-![](https://qinziyouyi.com/v2/images/pc/index_1.png)
-
 
 ![](https://qinziyouyi.com/v2/images/pc/web_001.jpg)
 
